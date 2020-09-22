@@ -1,2 +1,2 @@
-# Rhea Kandikanti
+# Rhea 
 Hey there!
